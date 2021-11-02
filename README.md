@@ -3,6 +3,6 @@
 - 🌱 I’m currently learning Python, Wolfram, and C#
 - 💞️ I’m looking to collaborate on bad ideas with alot of potential
 - 📫 How to reach me:
-Steam - The.Penguin.King
-Discord - A penguin#3141
-Instagram - @the.penguin.king
+Steam - The.Penguin.King ; 
+Discord - A penguin#3141 ; 
+Instagram - @the.penguin.king ; 
